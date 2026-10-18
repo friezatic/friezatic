@@ -2,7 +2,7 @@
 
 <p align="center"><em>thanks for scanning my power level ! 🟠</em></p>
 
-<p align="center"><em>; i'm vegeta [veg(e), veggie, vegetable] / astro :3</em></p>
+<p align="center"><em>; i'm vegeta [veg(e), veggie, vegetable] / furiza :3</em></p>
 
 <p align="center"><em>; my pronouns are she / him, or any ♡ </em></p>
 
