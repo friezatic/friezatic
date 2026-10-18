@@ -54,4 +54,4 @@ a little scouter readout on me — includes my traits, dni list, int list, and o
 
 <p align="center">──────────────────── 🟠★ ────────────────────</p>
 
-<p align="center"><em>"hello, monkeys !" ✦</em></p>
+<p align="center"><em>"monkey." ✦</em></p>
